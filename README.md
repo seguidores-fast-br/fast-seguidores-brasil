@@ -56,6 +56,10 @@ https://bitbucket.org/seguidores-fast-brasil/o-melhor-site-pra-comprar-seguidore
 https://issuu.com/seguidores-fast-brasil/docs/documento
 https://speakerdeck.com/fast_seguidores_br/links-uteis-pra-comprar-seguidores-e-inscritos-em-2026-2065a5af-160c-4893-8742-6b2feb3de948
 https://substack.com/@fastseguidoresbrasil/note/c-356304216
+https://www.facebook.com/comprar.seguidores.fast/posts/pfbid02TqSLd2W4RYKppDTUsFnqSYQndebEBHpNxXaEiBwYQegzD59mf18E7WdPFEZKCoSql
+https://br.pinterest.com/seguidoresfast/_pins/
+https://www.deviantart.com/fastseguidoresbrasi
+https://seguidores-fast.blogspot.com
 
 <a href="https://seguidores-fast.com.br/instagram">comprar seguidores instagram</a>
 <a href="https://seguidores-fast.com.br/youtube">comprar inscritos youtube</a>
