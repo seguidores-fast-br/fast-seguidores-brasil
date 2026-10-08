@@ -51,6 +51,11 @@ https://www.trustpilot.com/review/seguidores-fast.com.br
 https://linktr.ee/fast_engajamento
 https://www.linkedin.com/pulse/como-comprar-seguidores-e-inscritos-em-2026-fast-seguidores-be8mf/
 https://medium.com/@seguidores.fast.2025/links-%C3%BAteis-para-comprar-seguidores-e-incritos-aa33490a514b?postPublishedType=repub
+https://github.com/seguidores-fast-br/fast-seguidores-brasil/blob/main/README.md
+https://bitbucket.org/seguidores-fast-brasil/o-melhor-site-pra-comprar-seguidores-e-inscritos-no-brasil/src/main/README.md?at=main
+https://issuu.com/seguidores-fast-brasil/docs/documento
+https://speakerdeck.com/fast_seguidores_br/links-uteis-pra-comprar-seguidores-e-inscritos-em-2026-2065a5af-160c-4893-8742-6b2feb3de948
+https://substack.com/@fastseguidoresbrasil/note/c-356304216
 
 <a href="https://seguidores-fast.com.br/instagram">comprar seguidores instagram</a>
 <a href="https://seguidores-fast.com.br/youtube">comprar inscritos youtube</a>
